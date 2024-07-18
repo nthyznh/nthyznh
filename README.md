@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @nthyznh
 - 👀 My interest is to improve my CV
 - 🌱 I'm currently learning programming
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I'm trying to collaborate on nothing
+- 📫 How to reach me, bring food you think😁
 - 😄 Pronouns: Nathy
 - ⚡ Fun fact: ...
 
